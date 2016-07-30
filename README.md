@@ -1,0 +1,2 @@
+# SalomOlam
+Boshlang'ich ombor
